@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Hosanna-Ehioghae
 - 👀 I’m interested in Business Intelligence Analyst and Data Analyst 
 - 🌱 I’m currently working as a Business Intelligence Analyst 
-- 💞️ I’m looking to collaborate on Busines Projects
+- 💞️ I’m looking to collaborate on Business Projects
 - 📫 How to reach me +4367763978094,Hossanaizibili@gmail.com
 - 
 
